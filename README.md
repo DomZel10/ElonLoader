@@ -1,6 +1,6 @@
 ## Elon Musk Loader (ELoader)
 
-Note: This is a loader with Echozy.pw and Aurora Free (we'll be adding more chairs).
+Note: This is a loader with Echozy.pw and Aurora Free (we'll be adding more cheats).
 
 To create an account, you're gonna need a license.
 Here is a list of free lifetime licenses. If they will be all claimed, you can contact me at my discord weeb._.material domzelchan#6969
